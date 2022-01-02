@@ -1,1 +1,1 @@
-# licenses-and-certifications
+# Licenses and certifications
